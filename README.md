@@ -1,1 +1,7 @@
 # Network
+
+Nethear S3300-28X-PoE+ProSAFE 24port.
+Ref#27507346, S/N:3TM687A80026
+Phone: 855-776-7233
+Rachel, 2016-10-10
+
